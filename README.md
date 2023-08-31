@@ -1,4 +1,4 @@
-# World-Beauty
+# 🎀World-Beauty🎀
 
 - Ana Clara Marques Portes - Fatec/DSM
 
